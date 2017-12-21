@@ -1,3 +1,3 @@
 # hello-world
-ok this is kindof cool i supose
-lets go 
+welcome to this thing 
+
