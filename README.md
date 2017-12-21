@@ -1,2 +1,3 @@
 # cautious-computing-machine
-idk man i just work here 
+ok this is kindof cool i supose
+lets go 
